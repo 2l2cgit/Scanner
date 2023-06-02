@@ -5,3 +5,5 @@ I made this becuz MkLeaks posted their shitty port scanner in their telegram and
 ###### AdminX(me) - Making this
 ###### MkLeaks - Having the shitty idea
 ###### nikko & hexlocation - emotion retardation support
+
+https://dsc.gg/MetaGriefer 
